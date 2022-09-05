@@ -4,5 +4,5 @@
 • 🌱 Estoy aprendiendo Python, PHP y CSS3  
 • 🌎 Puedo programar paginas web sencillas  
 • 🔗 Puedo editar vídeos en Adobe Premiere  
-• 💬 Contactáctame por [discord](https://discord.gg/Vw5cmkFgRC)  
+• 💬 Contactáctame por [discord](https://discord.gg/wCVz5AsWvZ)  
 • 👤 Tengo 13 años
